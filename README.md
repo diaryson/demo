@@ -1,3 +1,3 @@
-# Welcome to Diaryson demo
-There are will be day be
-Kostya kestkostya@outlook.com
+# Welcome to Diaryson.com
+See day,
+Good, by me - Kostya kestkostya@outlook.com
